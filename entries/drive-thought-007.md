@@ -1,9 +1,4 @@
-标题：高生产力条件下的分配制度：自由主体、创新与资本增值
-原始记录时间：2026年10月6日
-来源：Google Drive / 08_记录想法
-源文件：https://docs.google.com/document/d/1j5t7dyNo0jbLp1jjeOwmkXKQWjJl2YNX7QyQT8Gdxag/edit
-迁移日期：2026-11-20
-备注：原件为含编辑整理的思想记录，迁移时保留原文及作者归属说明。
+2026年10月6日
 
 高生产力条件下的分配制度：自由主体、创新与资本增值
 
