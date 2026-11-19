@@ -1,9 +1,4 @@
-标题：理论真值、意义与可证伪性批判
-原始记录时间：2026年9月11日
-来源：Google Drive / 08_记录想法
-源文件：https://docs.google.com/document/d/1dIkpRo1zVSvtpqhJDd3ON4HDGR7Bq5EkYaUx8w3Eog8/edit
-迁移日期：2026-11-20
-备注：原件为含编辑整理的思想记录，迁移时保留原文及作者归属说明。
+2026年9月11日
 
 记录时间：2026年9月11日
 
