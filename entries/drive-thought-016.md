@@ -1,9 +1,4 @@
-标题：知识体系评估：从实际表现而非对称推断
-原始记录时间：2026年9月11日
-来源：Google Drive / 08_记录想法
-源文件：https://docs.google.com/document/d/1IcTxp6W4u3-VCGH1CQhkVXw_SfJu7Imkj3pHGIMnDao/edit
-迁移日期：2026-11-20
-备注：原件为含编辑整理的思想记录，迁移时保留原文及作者归属说明。
+2026年9月11日
 
 记录时间：2026年9月11日
 

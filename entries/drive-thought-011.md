@@ -1,9 +1,4 @@
-标题：十二长生—十二地支同源结构：运动先于象的数术世界观（2026-09-17）
-原始记录时间：原文未明确标注（详见源文件）
-来源：Google Drive / 08_记录想法
-源文件：https://docs.google.com/document/d/19nb75XuPz1fhnwhnAFJTxy7qZrS6NRBs8dV_bOYrwEQ/edit
-迁移日期：2026-11-20
-备注：原件为含编辑整理的思想记录，迁移时保留原文及作者归属说明。
+2026年9月16日（Drive建档）
 
 V4.1 状态说明
 

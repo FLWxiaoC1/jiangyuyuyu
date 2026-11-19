@@ -1,9 +1,4 @@
-标题：大六壬天地盘、类神、三传与十二地支气化结构理论
-原始记录时间：原文未明确标注（详见源文件）
-来源：Google Drive / 08_记录想法
-源文件：https://docs.google.com/document/d/1N6vg5UOsIusT3zW_SJrd7bSzAWHANLaa9APe5bCjjpo/edit
-迁移日期：2026-11-20
-备注：原件为含编辑整理的思想记录，迁移时保留原文及作者归属说明。
+2026年9月7日（Drive建档）
 
 V4.1 状态说明
 

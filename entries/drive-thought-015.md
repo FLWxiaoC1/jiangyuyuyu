@@ -1,9 +1,4 @@
-标题：理论雷达：以信息增量与启发性寻找阅读材料
-原始记录时间：2026年9月11日
-来源：Google Drive / 08_记录想法
-源文件：https://docs.google.com/document/d/1_zHVvLHyJutKZCLP2ia10ziTxd0B5oibC3xWz-7Fhss/edit
-迁移日期：2026-11-20
-备注：原件为含编辑整理的思想记录，迁移时保留原文及作者归属说明。
+2026年9月11日
 
 记录时间：2026年9月11日
 
